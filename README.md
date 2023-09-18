@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @joshua dedel
 - 👀 I’m interested in boxing, art , animation etc.
-- 🌱 I’m currently learning God says
+- 🌱 I’m currently learning how to create program
 - 💞️ I’m looking to collaborate on ghibli filmn
 - 📫 How to reach me against enemy
 
